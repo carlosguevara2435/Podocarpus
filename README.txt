@@ -26,4 +26,3 @@ Webgrafía:
 - https://www.jocotoco.org/
 - https://wwf.org.ec/
 
-(Prohibido copiar desde Wikipedia, Rincondelvago, Monografías.com, ChatGPT, Brainly, Gemini, etc.)
